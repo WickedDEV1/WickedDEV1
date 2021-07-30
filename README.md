@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Wicked Owner off the Wonder Music Bot At Discord
+- Apprentice JavaScript Developer
+- And There you go
